@@ -8,4 +8,4 @@ Partnerships & Account Management leader based in Munich, working across B2B Saa
 - 🧠 Currently exploring the generative AI ecosystem: model providers, API partnerships and usage-based pricing
 - 🗣️ English · Spanish (native) · German (intermediate)
 
-📫 [LinkedIn](https://www.linkedin.com/in/your-name)
+📫 [LinkedIn](https://www.linkedin.com/in/lorena-ramirezm/)
